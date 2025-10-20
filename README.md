@@ -1,4 +1,4 @@
-### Hi there 👋, Hi 👋, I'm Tanmay
+### Hi 👋, I'm Tanmay
 #### A Passionate Software Developer From Bangladesh
 
 
